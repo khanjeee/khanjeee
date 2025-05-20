@@ -1,8 +1,8 @@
 
-**Principal Software Engineer**
-📍 Abu Dhabi, UAE
-📧 [shoaibkhan105@outlook.com](mailto:shoaibkhan105@outlook.com)
-📞 +92 345 2767640
+**Principal Software Engineer**\
+📍 Abu Dhabi, UAE\
+📞 +971 56 2767438 | +92 345 2767640  \
+📧 [shoaibkhan105@outlook.com](mailto:shoaibkhan105@outlook.com)\
 🔗 [LinkedIn](https://www.linkedin.com/in/khanjeee/) | [GitHub](https://github.com/khanjeee) | [Twitter](https://twitter.com/ShoaibKaan)
 
 ---
